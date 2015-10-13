@@ -116,6 +116,9 @@ As with unlimited vacation, just stating “we’ll get you what you need!” is
 * Raphael (does development, sales, and operations out of NYC): MacBook Pro, ReadyDesk, external display, Apple wireless keyboard, Logitech wireless mouse.
 * George (content marketing and customer support in NYC): MacBook Air, rain design mStand, Apple wireless keyboard, Logitech wireless mouse.
 * John (development in Boulder): MacBook Pro, noise-canceling headphones.
+* Aron (development in Boulder): Docking station, mechanical keyboard.
+ 
+The process is easy, just email Raphael the receipts and he’ll enter you into our billpay system to get reimbursed.
 
 
 
